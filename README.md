@@ -1,2 +1,2 @@
-Token: SubscribeAmmarExecutexwowfbcgblkae18djw
+SubscribeAmmarExecutexwowfbcgblkae18djw
 
